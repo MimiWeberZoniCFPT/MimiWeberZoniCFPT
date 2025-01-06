@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Mimi
 - 👀 I’m interested in Video Games, Drawings and Musics
 - 🌱 I’m currently learning some things that I don't know
-- 📫 How to reach me : jamie.wbr@eduge.ch (For school only)
+- 📫 How to reach me : mimi.wbr@eduge.ch (For school only)
 
 I like to brag about things that I am bad at (Like programming, speaking english or finishing a Touhou game)
 
